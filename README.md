@@ -1,1 +1,0 @@
-# ashok-ga.github.io
